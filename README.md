@@ -1,4 +1,12 @@
-## Hi there 👋
+<p align="center">
+╰ " The sun, the moon and stars. Don't seem as far as they did yesterday " ‹𝟹
+</p>
+  <p align="center">
+    Hello, I'm Shadow / Prince. Welcome to my GitHub ʾʾ₍ ᐢ..ᐢ ₎  !! I don't have much to say about myself here as I wanted to use this as a guideline when it comes to ponytown. Dont worry I don't have any big rules or anything !
+    </p>
+      <p align="center">
+       ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+       </p>
 
 <!--
 **koch-MP5A3/Koch-Mp5a3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
