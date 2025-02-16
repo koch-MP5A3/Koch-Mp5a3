@@ -2,7 +2,7 @@
 ╰ " The sun, the moon and stars. Don't seem as far as they did yesterday " ‹𝟹
 </p>
   <p align="center">
-    Hello, I'm Linus / Prince. Welcome to my GitHub ʾʾ₍ ᐢ..ᐢ ₎  !! I don't have much to say about myself here as I wanted to use this as a guideline when it comes to Pony town. Don't worry I don't have any big rules or anything!
+    Hello, I'm Ren / Prince. Welcome to my GitHub ʾʾ₍ ᐢ..ᐢ ₎  !! I don't have much to say about myself here as I wanted to use this as a guideline when it comes to Pony town. Don't worry I don't have any big rules or anything!
     </p>
       <p align="center">
        ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
@@ -12,7 +12,7 @@
     </p>
     <br>
     <p align="center">
-    I am 17 ( I will be 18 in 6 months ). I ask that if you're below the age of 15, keep interactions minimal ( mainly if you want to be friends ). I joke around a lot and can be a bit out of pocket.
+    I am 17 ( I will be 18 in june ). I would like to ask that if you're below the age of 15, please keep interactions minimal ( mainly if you want to be friends ). I joke around a lot and can be a bit out of pocket. I really enjoy sonic, arcane, nights into dreams and a lot of other stuff! My favourite ships are shadilver, shadourge, knuxadow, sonjet/jet speed, caitvi, time bomb, etc !!!
     </p>
 <!--
 **koch-MP5A3/Koch-Mp5a3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
