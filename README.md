@@ -1,8 +1,8 @@
 <p align="center">
-<b>╰ " Let me hold you close (close), 떠오른 달 그 위로 (위로) " ‹𝟹</b>
+<b>╰ " I must crush my fear! Now is the time... I must overcome it right now! That is what it means to live!" </b>
 </p>
   <p align="center">
-    Hello, I'm Jun Seok. Welcome to my GitHub ʾʾ₍ ᐢ..ᐢ ₎  !! I don't have much to say about myself here as I wanted to use this as a guideline when it comes to Pony town. Don't worry I don't have any big rules or anything!
+    Hello, I'm Diavolo / Marcell. Welcome to my GitHub ʾʾ₍ ᐢ..ᐢ ₎  !! I don't have much to say about myself here as I wanted to use this as a guideline when it comes to Pony town. Don't worry I don't have any big rules or anything!
     </p>
       <p align="center">
        ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
