@@ -8,11 +8,11 @@
        ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
        </p>
   <p align="center">
-    I'm very friendly and always encourage interactions! I tend to be awkward though because I get anxious easily. I use Pony Town to make friends and mutuals and create fun skins and cos. Cuddles and hugs and hiding are fine with me! If I ever do something wrong then please let me know. I'm always looking to improve on myself and learn from my mistakes. English is not my first language so please be patient as i'm still learning
+    I'm very friendly and always encourage interactions! I tend to be awkward though because I get anxious easily. I use Pony Town to make friends and mutuals and create fun skins and cos. Cuddles and hiding are fine with me! If I ever do something wrong then please let me know. I'm always looking to improve on myself and learn from my mistakes. English is not my first language so please be patient as i'm still learning
     </p>
     <br>
     <p align="center">
-    I enjoy a lot of different medias. I am not apart of any fandoms to be honest but I do like squid game, pokemon, identity v, sonic, splatoon, etc. Im always looking for more things to get into though
+    I enjoy a lot of different medias. I am not apart of any fandoms to be honest but I do like Jojo's Bizarre Adventure, Soul Eater, Kingdom Hearts, Squid Game, pokemon, identity v, sonic, splatoon, etc. Im always looking for more things to get into though
     </p>
 <!--
 **koch-MP5A3/Koch-Mp5a3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
