@@ -6,7 +6,7 @@
 </p>
   <p align="center">
     <img width="15" height="15" alt="4-B591-F53-B744-4747-97-C9-2-E7325085-DAD" src="https://github.com/user-attachments/assets/35e0a381-788f-48a3-9b0a-144e8433402b" />
-Hello, I'm Prince / Memphis. Welcome to my GitHub !! I don't have much to say about myself here as I wanted to use this as a guideline when it comes to Pony town. Don't worry I don't have any big rules or anything!
+Hello, I'm Prince / Memphis / Diavolo. Welcome to my GitHub !! I don't have much to say about myself here as I wanted to use this as a guideline when it comes to Pony town. Don't worry I don't have any big rules or anything!
     </p>
       <p align="center">
        ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
